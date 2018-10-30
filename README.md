@@ -1,2 +1,2 @@
-# Inspot_Branding
-###Inspot Brand Design Renewal
+# Inspot Brand Design
+### Inspot Brand Design Renewal
